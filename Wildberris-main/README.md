@@ -1,2 +1,0 @@
-# Wildberris
-Glo Academy 
